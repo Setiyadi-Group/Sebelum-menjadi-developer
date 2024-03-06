@@ -1,0 +1,1 @@
+# Sebelum-menjadi-developer
